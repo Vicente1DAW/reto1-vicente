@@ -1,0 +1,1 @@
+Me gustaría construir un buen software de cualquier tipo con el objetivo de mejorar la vida y/o digitalizar alguna cosa o automatizar algun trabajo
